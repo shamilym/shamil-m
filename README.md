@@ -1,2 +1,0 @@
-# shamil-m
-student
